@@ -1,3 +1,3 @@
 # resume
 
-last updated September 30, 2026
+last updated October 8, 2026
